@@ -2,4 +2,4 @@ Il tourna le coin de la maison, rencontra le garçon nez à nez, lui arracha le 
 
 Les jours suivants, il n'arrêtait pas de penser à ce moment et à quel point il était confus. La seule chose qu'il voulait maintenant était une autre rencontre avec ce garçon afin qu'il puisse lui poser quelques questions afin de mieux se comprendre.
 
-
+Puis le garçon tomba dans le trou.
