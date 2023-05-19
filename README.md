@@ -12,3 +12,5 @@ Itachi possède une intelligence exceptionnelle et des compétences de combat re
 Un goblin doit se battre dans un champs de bataille avec un bouclier et un dague qui va lui permettre  de faire une attaque cible
 
 Malheureusement, FUMBLE ! Le gobelin lance sa dague mais rate et empale son copain l'orc. Tristesse sur lui et sa famille... :'(
+NOOOON cria l'orc!
+Tu m'empales alors que je suis ton ami! 
